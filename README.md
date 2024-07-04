@@ -2,7 +2,7 @@
 
 I am Max, Software Sensei and Growth Hacker.
 
-See my [CV](https://new.anonyfox.com/cv), read my [Blog](https://new.anonyfox.com/blog) or browse through my [Solopreneur Portfolio](https://new.anonyfox.com/portfolio) - all available on [my website](https://new.anonyfox.com). 
+See my [CV](https://anonyfox.com/cv), read my [Blog](https://anonyfox.com/blog) or browse through my [Solopreneur Portfolio](https://anonyfox.com/portfolio) - all available on [my website](https://anonyfox.com). 
 
 You can also reach me through these channels: 
 
